@@ -1,10 +1,3 @@
-- 👋 Hi, I’m @CameronStudiosdotme
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-CameronStudiosdotme/CameronStudiosdotme is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Im The Owner of CS need proof? Here is my preyoutube key: GFsegfsGB^VDRTFyVDRfstrFRdRFst65fR == 56278585743857 redeem this code to find the profile at CameronStudios.gg/redeem/ACCOUNTS/56278585743857?preyoutubekey?GFsegfsGB^VDRTFyVDRfstrFRdRFst65fR
+Code Redeem Will Show account: CameronStudiosAgents If you click it then it will show CameronStudios Account. Bug has not been fixed but gonna fix
+and it will say account linked: CameronStudios
